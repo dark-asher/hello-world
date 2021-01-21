@@ -1,2 +1,11 @@
 # hello-world
-Rinse and Repeat
+
+
+Hi Beings!!
+
+
+I will immerse my-self into this digital world to no end.
+
+  #
+ ##
+###
